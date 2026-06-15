@@ -1,4 +1,4 @@
-<img width="1200" height="400" alt="9d9b8799437d49107afcefeea2e469e2 (1)" src="https://github.com/user-attachments/assets/7584f0bb-01eb-4e6c-93c7-31a30ec83ecd" />
+<img width="1200" height="500" alt="image_2026-06-15_022034018" src="https://github.com/user-attachments/assets/2be38492-6642-44eb-bd32-6c5d7c456a74" />
 
 <img width="1200" height="30" alt="8fc9e779a2b90400986dbda03ad311c5" src="https://github.com/user-attachments/assets/82709754-5506-4136-a700-ddc4ea1975af" />
 
@@ -20,7 +20,7 @@ diagnosed severe social anxiety, adhd, and suspected chronic fatigue, please be 
 <p align="center">
 do not copy my ponies or post them anywhere! close friends are always okay for inspo/ask for copy
 <p align="center">
-you can add my discord (@kippfish) if you'd like, im a lot more active on there, but please say who you are/that ur from pt!
+you can add my discord (@kippfish) if you'd like, im a lot more active on there, but please say that ur from pt!
 <p align="center">
 DNI: basic dni criteria, the freak circus, tcoaal, wss, vivziepop fans/supporters, ai supporters, proshippers, talking shit about people, making joke/fake threats abt srs things, maga
 <p align="center">
@@ -35,7 +35,7 @@ be kind to yourself and others!
 
 <p align="center">
    carrd ---> https://saihaaras.carrd.co
-  ata(SIGN!) ---> https://saiharas.atabook.org
+  ata(SIGN!) ---> https://kamisero.atabook.org
 fav chars+ships ---> https://fishing4kipp.carrd.co
 
 <p align="center">
