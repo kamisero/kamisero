@@ -35,7 +35,7 @@ be kind to yourself and others!
 
 <p align="center">
    carrd ---> https://saihaaras.carrd.co
-  ata(SIGN!) ---> https://kamisero.atabook.org
+  ata(SIGN) ---> https://kamisero.atabook.org
 fav chars+ships ---> https://fishing4kipp.carrd.co
 
 <p align="center">
