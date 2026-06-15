@@ -8,13 +8,13 @@ heya! you can call me cody or any of my kin names! he/hymn/any prns | this is my
 <p align="center">
 17..... 20+ and 14- dni (if i interact and you're younger/older than these, i likely was not aware!)
 <p align="center">
-c+h is always okay and encouraged, i promise i dont bite. i love making friends, so please int!!!!
+c+h is always okay and encouraged, i promise i dont bite. i love making friends, so PLEASE INT!!!! I LOVE C+H!!!
 <p align="center">
 keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. i block/hide/report freely <3
 <p align="center">
-i can get irritated very easily, but it's rarely targeted at any person/individual. i'm usually very friendly. i do struggle a lot with making new friends and being social, so if i seem awkward or avoidant, i apologize.
+i can get irritated very easily, but it's rarely targeted at any person/individual! i'm usually very friendly! i do struggle a lot with making new friends and being social, so if i seem awkward or avoidant, i apologize.
 <p align="center">
-i really REALLY love all things in the racing scene anything to do with racing i adore (formula 1, mf ghost, initial d, street racing aus, fast+furious, etc etc!!!!) if you see a racer AU pony, its probably me! all of my mha ponies are racer aus.
+biggest kamisero fan + racing aus fan. if you see a racer au pony its probably me! majority of my mha ponies are racer aus.
 <p align="center">
 diagnosed severe social anxiety, adhd, and suspected chronic fatigue, please be patient with me!
 <p align="center">
