@@ -24,7 +24,7 @@ you can add my discord (@kippfish) if you'd like, im a lot more active on there,
 <p align="center">
 DNI: basic dni criteria, the freak circus, tcoaal, wss, vivziepop fans/supporters, ai supporters, proshippers, talking shit about people, making joke/fake threats abt srs things, maga
 <p align="center">
-main/fav fandoms atm: identity v, ensemble stars, danganronpa, my hero academia, hoyoverse, cookie run, merlin bbc, gachiakuta, witch hat atelier, riordanverse, ninjago, blue lock, chainsaw man, the summer hikaru died, sk8 the infinity, go for it nakamura, sasaki to miyano, paradox live, hypnosis mic, twisted wonderland, dr stone, link click, kingdom hearts, dont starve, bungou stray dogs, studio investigrave, soul eater, mf ghost, haikyuu, voltron, ETC!!
+main/fav fandoms atm: identity v, ensemble stars, final fantasy(7), danganronpa, my hero academia, hoyoverse, cookie run, merlin bbc, gachiakuta, witch hat atelier, riordanverse, ninjago, blue lock, chainsaw man, the summer hikaru died, sk8 the infinity, go for it nakamura, sasaki to miyano, paradox live, hypnosis mic, twisted wonderland, dr stone, link click, kingdom hearts, dont starve, bungou stray dogs, studio investigrave, soul eater, mf ghost, haikyuu, voltron, ETC!!
 <p align="center">
 be kind to yourself and others!
 <p align="center">
