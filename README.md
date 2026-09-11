@@ -4,7 +4,7 @@
 
 
 <b><p align="center">
-heya! you can call me cody or any of my kin names! he/hymn/any prns | this is my alt/spam account i use for my mha ponies, but PLEASE follow my main @saiharas ! i'm pretty active on both these accounts so the status is usually updated to current time! block if unwanted follow
+this account is ONLY linked to my mha ponies. you'll see my MAIN github @saiharas WAYYYY more often.
 <p align="center">
 17..... 20+ and 14- dni (if i interact and you're younger/older than these, i likely was not aware!)
 <p align="center">
