@@ -6,27 +6,7 @@
 <b><p align="center">
 this account is ONLY linked to my mha ponies. you'll see my MAIN github @saiharas WAYYYY more often.
 <p align="center">
-17..... 20+ and 14- dni (if i interact and you're younger/older than these, i likely was not aware!)
-<p align="center">
-c+h is always okay and encouraged, i promise i dont bite. i love making friends, so PLEASE INT!!!! I LOVE C+H!!!
-<p align="center">
-keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. i block/hide/report freely <3
-<p align="center">
-i can get irritated very easily, but it's rarely targeted at any person/individual! i'm usually very friendly! i do struggle a lot with making new friends and being social, so if i seem awkward or avoidant, i apologize.
-<p align="center">
-biggest kamisero fan + racing aus fan. if you see a racer au pony its probably me! majority of my mha ponies are racer aus.
-<p align="center">
-diagnosed severe social anxiety, adhd, and suspected chronic fatigue, please be patient with me!
-<p align="center">
-do not copy my ponies or post them anywhere! close friends are always okay for inspo/ask for copy
-<p align="center">
-you can add my discord (@kippfish) if you'd like, im a lot more active on there, but please say that ur from pt!
-<p align="center">
-DNI: basic dni criteria, the freak circus, tcoaal, wss, vivziepop fans/supporters, ai supporters, proshippers, talking shit about people, making joke/fake threats abt srs things, maga
-<p align="center">
-main/fav fandoms atm: identity v, ensemble stars, final fantasy(7), danganronpa, my hero academia, hoyoverse, cookie run, merlin bbc, gachiakuta, witch hat atelier, riordanverse, ninjago, blue lock, chainsaw man, the summer hikaru died, sk8 the infinity, go for it nakamura, sasaki to miyano, paradox live, hypnosis mic, twisted wonderland, dr stone, link click, kingdom hearts, dont starve, bungou stray dogs, studio investigrave, soul eater, mf ghost, haikyuu, voltron, ETC!!
-<p align="center">
-be kind to yourself and others!
+17, adults and under 14 iwc, c+h is always okay i love sitting with ppl and making new friends!!! pls dont b scared to talk to me 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31dijzczo5lfhxmq6mr3nalipx6e&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&mode=dark&bar_color=23a2a4&bar_color_cover=false">
@@ -35,8 +15,7 @@ be kind to yourself and others!
 
 <p align="center">
    carrd ---> https://saihaaras.carrd.co
-  ata(SIGN) ---> https://kamisero.atabook.org
-fav chars+ships ---> https://fishing4kipp.carrd.co
+  ata ---> https://kamisero.atabook.org
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/ec3d540a-cf0e-4039-9f44-ea477d295e1e" width="30%" />
