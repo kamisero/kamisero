@@ -8,6 +8,8 @@ this account is ONLY linked to my mha ponies. you'll see my MAIN github @saihara
 <p align="center">
 17, adults and under 14 iwc, c+h is always okay i love sitting with ppl and making new friends!!! pls dont b scared to talk to me 
 <p align="center">
+kamisero otp i love them dearly.
+<p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31dijzczo5lfhxmq6mr3nalipx6e&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&mode=dark&bar_color=23a2a4&bar_color_cover=false">
   </a>
