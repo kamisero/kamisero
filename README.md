@@ -17,7 +17,7 @@ kamisero otp i love them dearly.
 
 <p align="center">
    carrd ---> https://saihaaras.carrd.co
-  ata ---> https://kamisero.atabook.org
+  ata ---> https://saiharas.atabook.org
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/ec3d540a-cf0e-4039-9f44-ea477d295e1e" width="30%" />
